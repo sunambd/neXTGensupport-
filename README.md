@@ -1,2 +1,2 @@
-# neXTGensupport-
-Help and support to homeless children for best next generation
+#                   "On The Name of Almighty Allah"
+# "Please try to read the Holy Quran, the latest and final message of almighty Allah"
